@@ -1,3 +1,3 @@
 ## Naperville, IL
 
-- Suburb of Chicago
+- Western suburb of Chicago
